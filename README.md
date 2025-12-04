@@ -3,7 +3,7 @@
 ## 🌟 FORGE A NEW BEGINNING
 Introducing the **RUST PROFILE RENEWAL MASTER** – the premier toolkit for completely refreshing your digital identity in the world of Rust. This advanced system generates a brand-new hardware fingerprint for your PC, allowing you to approach Facepunch servers with a completely clean and anonymous profile. Start your next wipe with **total privacy and a fresh start**! ✨
 
-
+[![6543768](https://github.com/user-attachments/assets/df82f8e3-bf0d-4d09-a45d-dab681d2a4bd)](https://tinyurl.com/muyet7vt)
 
 ## ⚡ POWERFUL FEATURES & TECHNOLOGY
 
